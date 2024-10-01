@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @apsalvst
 - 👀 I’m interested in Cinema, Music, Make Up & Web Design
-- 🌱 I’m currently learning UX/UI Design
+- 🌱 I’m currently finishing Graphic Design at EBAC.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
